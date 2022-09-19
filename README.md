@@ -1,0 +1,2 @@
+# patikacohorts_hizlandirma
+patikacohorts
